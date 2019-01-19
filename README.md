@@ -1,1 +1,0 @@
-# pixiv-gq.github.io
